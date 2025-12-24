@@ -1,6 +1,8 @@
 
 
  ## 🦴🕸 ROME *!*
+ ![](<img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/f7856803-83df-4636-84a2-ba96291cdd14")
+
 
 
 
